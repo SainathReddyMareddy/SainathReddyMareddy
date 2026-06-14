@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi  👋
 # Mareddy Sainath Reddy
 **ARTIFICIAL INTELLIEGENCE AND MACHINE LEARNING** 
 
